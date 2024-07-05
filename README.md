@@ -1,5 +1,5 @@
 <p align="center"> <img width="440" height="440" src="https://64.media.tumblr.com/e4ed355179d3e8848734ab888e27e79e/6dcec16d3116118f-3e/s540x810/f9feec6d5003cfad2127d34fca11355b94e567e9.pnj"> </p>
-<p align="center"> ♡ ◟@yaoipotion @istjaemin ！</p>
+<p align="center"> ♡ ◟<a href="https://github.com/yaoipotion" target="_blank">@yaoipotion</a> ៸៸ <a href="https://github.com/istjaemin" target="_blank">@istjaemin</a> ！</p>
 <p align="center"> ✦ ‿︵ kieran or gideon (^_^) </p> 
 <p align="center"> ට <a href="https://en.pronouns.page/@ikeabat" target="_blank">he / they</a> & transmasc ,, </p>
 <p align="center"> <a href="https://stellular.net/lemonsquashcheers!" target="_blank"> pt info</a> ୨୧ <a href="https://pukapuka.crd.co/" target="_blank">carrd</a> </p>
