@@ -19,6 +19,9 @@
 <img src="https://64.media.tumblr.com/f0ae06366f17cb2db0cf0a96605017dd/aa2ab3102bc79de8-51/s100x200/e48b3c091d19497a771887b4cf1a8c5d85844842.pnj" width="100" height="59" />
 <img src="https://64.media.tumblr.com/bdce30636ca354e8846f0171a843d417/9a1f91e476d7328e-9d/s100x200/d7fd879b0e253e4b86223ebbb7de856d65407815.gifv" width="100" height="60" />
 <img src="https://64.media.tumblr.com/09ccef67f59820465aa8d9f7ab864ac3/5cd52271f284eab2-42/s100x200/471ecab3922778fee02fbffa6535b57370618a2c.pnj" width="100" height="60" />
+<img src="https://64.media.tumblr.com/1353fbe193a43268df249d4fff21fcb7/4c372f96bc482dcd-dc/s100x200/0cb7f20225655f309174db8231a9c1260b7c66c0.pnj" width="100" height="60" />
+<img src="https://64.media.tumblr.com/ca1182a63872eb937e3361d47ab11071/4c372f96bc482dcd-6e/s100x200/f5ed8ff5d8e72d09420a371b74cd9907f32a4961.pnj" width="100" height="60" />
+<img src="https://64.media.tumblr.com/083b75cd6d49b07c65eb173c88c38a31/4c372f96bc482dcd-b7/s100x200/cf58d36c9a53cdcf1be370eb3d18763ae6627171.pnj" width="100" height="60" />
 </p>
 
 ![](https://komarev.com/ghpvc/?username=johnmarstons&color=4278f5)
