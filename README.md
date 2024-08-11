@@ -1,9 +1,9 @@
-<p align="center"> <img width="440" height="440" src="https://64.media.tumblr.com/e4ed355179d3e8848734ab888e27e79e/6dcec16d3116118f-3e/s540x810/f9feec6d5003cfad2127d34fca11355b94e567e9.pnj"> </p>
+<p align="center"> <img width="440" height="440" src="https://64.media.tumblr.com/dd624f56c2446396f1b90248539b61c2/ad14974a66335ccb-81/s540x810/262da248dc282b04229e51d54b704ec4a39d72b4.pnj"> </p>
 <p align="center"> ♡ ◟<a href="https://github.com/yaoipotion" target="_blank">@yaoipotion</a> ៸៸ <a href="https://github.com/istjaemin" target="_blank">@istjaemin</a> ！</p>
 <p align="center"> ✦ ‿︵ kieran or gideon (^_^) </p> 
 <p align="center"> ට <a href="https://en.pronouns.page/@ikeabat" target="_blank">he / they</a> & transmasc ∿ </p>
 <p align="center"> <a href="https://stellular.net/lemonsquashcheers!" target="_blank"> pt info</a> ୨୧ <a href="https://pukapuka.crd.co/" target="_blank">carrd</a> </p>
-<p align="center"> <img width="300" height="20" src="https://64.media.tumblr.com/c5c2465e93c445a17a7e54f9cfffab13/96872098c3c5a16a-9c/s400x600/3727757289db4f3530b0bb299adb8e21d5a289c8.gifv"> </p>
+<p align="center"> <img width="500" height="20" src="https://file.garden/Zj6PZ_oh-G9Y8C5c/Kazsgraphicsarchive/dividers/blue/tumblr_d38ff3b31b15a28c1838cc752628c4d6_5b218a59_540.webp"> </p>
 <p align="center">
   <img src="https://64.media.tumblr.com/84c9afbd74542f3f2b6832b2a625f78e/bb8f3fc4a236f7ac-15/s100x200/4f7f33129cf45935c27847be8421a0958238ca1e.gifv" width="100" height="60" />
   <img src="https://64.media.tumblr.com/e7a1456999f8a06bf929c10423e61de1/34d2e1c3607433d0-05/s100x200/1f4d155b5794fe71494743bb45930f56baf1243c.gifv" width="100" height="60" /> 
@@ -22,6 +22,16 @@
 <img src="https://64.media.tumblr.com/1353fbe193a43268df249d4fff21fcb7/4c372f96bc482dcd-dc/s100x200/0cb7f20225655f309174db8231a9c1260b7c66c0.pnj" width="100" height="60" />
 <img src="https://64.media.tumblr.com/ca1182a63872eb937e3361d47ab11071/4c372f96bc482dcd-6e/s100x200/f5ed8ff5d8e72d09420a371b74cd9907f32a4961.pnj" width="100" height="60" />
 <img src="https://64.media.tumblr.com/083b75cd6d49b07c65eb173c88c38a31/4c372f96bc482dcd-b7/s100x200/cf58d36c9a53cdcf1be370eb3d18763ae6627171.pnj" width="100" height="60" />
+<img src="https://file.garden/Zj6PZ_oh-G9Y8C5c/Kazsgraphicsarchive/stamp%20collection%20%5E%5E/blue/tumblr_8ece2128d4441a8c15496ec8ee047fb7_2bc71901_100.webp" width="100" height="60" />
+<img src="https://file.garden/Zj6PZ_oh-G9Y8C5c/Kazsgraphicsarchive/stamp%20collection%20%5E%5E/pink/352586aa.png" width="100" height="60" />
+<img src="https://file.garden/Zj6PZ_oh-G9Y8C5c/Kazsgraphicsarchive/stamp%20collection%20%5E%5E/white/IMG_2472.png" width="100" height="60" />
+<img src="https://file.garden/Zj6PZ_oh-G9Y8C5c/Kazsgraphicsarchive/stamp%20collection%20%5E%5E/white/tumblr_7d848af2d01daf46226047b4f744d4a5_226a2484_100.png" width="100" height="60" />
+<img src="https://file.garden/Zj6PZ_oh-G9Y8C5c/Kazsgraphicsarchive/stamp%20collection%20%5E%5E/black/IMG_2459.png" width="100" height="60" />
+<img src="https://file.garden/Zj6PZ_oh-G9Y8C5c/Kazsgraphicsarchive/stamp%20collection%20%5E%5E/black/tumblr_d814b71e169c09a5c566d0d58f2ac36f_9ff0275e_100.jpg" width="100" height="60" />
+<img src="https://file.garden/Zj6PZ_oh-G9Y8C5c/Kazsgraphicsarchive/stamp%20collection%20%5E%5E/black/tumblr_35d94ef0ebd77d6ca944fa0dcd7e31a9_987fa2a8_100.png" width="100" height="60" />
+<img src="https://file.garden/Zj6PZ_oh-G9Y8C5c/Kazsgraphicsarchive/stamp%20collection%20%5E%5E/black/tumblr_inline_pgas0a4G5U1v11djx_500.png" width="100" height="60" />
+<img src="https://file.garden/Zj6PZ_oh-G9Y8C5c/Kazsgraphicsarchive/stamp%20collection%20%5E%5E/brown/der5kwn.png" width="100" height="60" />
+<img src="https://file.garden/Zj6PZ_oh-G9Y8C5c/Kazsgraphicsarchive/stamp%20collection%20%5E%5E/misc_multicolor/tumblr_e328ee0f3f80c5d6596378979e7f7988_4c8aafca_100.png" width="100" height="60" />
 </p>
 
 ![](https://komarev.com/ghpvc/?username=johnmarstons&color=4278f5)
