@@ -1,7 +1,7 @@
 <p align="center"> <img width="440" height="440" src="https://files.catbox.moe/uui0ea.png"> </p>
 <p align="center">  hii im kieran or koi </p> 
 <p align="center">  <a href="https://pronouns.cc/@koicarp" target="_blank">he / they</a> & transmasc  </p>
-<p align="center"> <a href="https://www.patreon.com/c/ikeabat/about" target="_blank"> pt info</a> <img width="25" height="25" src="https://64.media.tumblr.com/be7afb7168ecc219bf552f80ce0eba76/ee643efaa86f6169-5b/s75x75_c1/efb0d77f9c298eec158dec6a720ba83e7b99184b.gifv"> <a href="https://rentry.co/solar-system" target="_blank">rentry</a> </p>
+<p align="center"> <a href="https://www.patreon.com/c/ikeabat/about" target="_blank"> pt info</a> <img width="25" height="25" src="https://64.media.tumblr.com/be7afb7168ecc219bf552f80ce0eba76/ee643efaa86f6169-5b/s75x75_c1/efb0d77f9c298eec158dec6a720ba83e7b99184b.gifv"> <a href="https://rentry.co/bearlien" target="_blank">rentry</a> </p>
 <p align="center"> <a href="https://github.com/Ingokov" target="_blank"> check vee out she is super dupa cool!! love her!!!/p</a>
 <p align="center"> <a href="https://github.com/istjaemin" target="_blank"> my boyfriend... come back online pls.. begs..</a>
 
